@@ -56,7 +56,7 @@ _To become a leader in urban farming innovation, setting new standards for effic
 
 - **Founder and CEO:**  
   **Matthew Lopez**  
-  With a background in sustainable agriculture and business management.
+  Combining business management with automation technology, I aim to create a highly efficient urban farming enterprise that optimizes crop production and resource use in city environments..
 
 - **CTO:**  
   _[Position Open]_  
