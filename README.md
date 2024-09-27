@@ -3,7 +3,7 @@
 
 ---
 
-![Urban Oasis Farms Banner](https://via.placeholder.com/1200x300.png?text=Urban+Oasis+Farms)
+![Urban Oasis Farms Banner](image_fx_.jpg)
 
 ---
 
